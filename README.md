@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mamedderficker
 - 👀 I’m interested in dicks 
 - 🌱 I’m currently learning women
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to blow up the other tower ...
 - 📫 How to reach me , stfu
 
 <!---
